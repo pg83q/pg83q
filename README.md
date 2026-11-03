@@ -3,7 +3,7 @@
 なんでこんなに愚かなんだろう。
 Rivals Top lowr level Knifer
 
-#English
+# English
 I'm so stupid. foolish.
 How can you be so stupid?
 Rivals Top lowr level Knifer
